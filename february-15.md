@@ -3,7 +3,7 @@ Will create a portfolio (ideally a webite);  can/will use GitHub for this.
 Will discover/cultivate my artists voice (what is is that I have to say to the world? what is my unique perspective?)    
 
 
-Project Ideas:  
+**Project Ideas:**
 Collect plastic cups from fast food places (use for a recycled garden)   
 Collect wine bottles  
 Collect aluminum cans (and can tabs)  
