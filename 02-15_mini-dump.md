@@ -18,3 +18,16 @@ Story project playing with comics/graphic novels
 Story project practicing screenwriting and storyboarding   
 Exploration of uniqueness of annotations  
 Exploration of mediums (down to the nitty gritty like fonts, personal study habits, etc.)  
+Zine project about black holes  
+Zine project about cicadas  
+Zine project about mixed identities and imposter syndrome  
+Zine project about learning an instrument/musical journey  
+Zine project about self-education, self-care, self-love, etc.  
+Zine project of personal poetry  
+Zine project about my personal zine-making process  
+Bookbinding project using recycled paper  
+Photography project surrounding my everyday comuute  
+Story project about ghosts and ancestry  
+Story project about getting lost  
+Story project about discovering a portal to another world  
+
