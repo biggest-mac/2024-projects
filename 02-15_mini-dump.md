@@ -30,4 +30,6 @@ Photography project surrounding my everyday comuute
 Story project about ghosts and ancestry  
 Story project about getting lost  
 Story project about discovering a portal to another world  
+Essay project about "secret third thing" memes using a post structuralist approach  
+
 
