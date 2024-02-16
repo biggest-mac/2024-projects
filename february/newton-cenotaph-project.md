@@ -14,6 +14,9 @@ Archaic Torso of Apollo - aut. (RILKE, r.m.)
 Fear of the Sublime - aut. (VELDE, p.)  
 Time and Space in the Work of Laszlo Moholy-Nagy - aut. (KIRKPATRICK, d.)  
 Love Death + Robots - Ice Age - dir. (MILLER, t.)  
+Prometheus (movie)  
+
+
 
 
 
@@ -51,7 +54,9 @@ manifesting; visualizing futures
 speculative fiction  
 science and empire  
 the french-spanish geodesic mission to the equator  
-
+the anthropocene  
+apocalypse  
+the singularity  
 
 
 
