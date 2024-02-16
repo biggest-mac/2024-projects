@@ -32,6 +32,8 @@ Story project about getting lost
 Story project about discovering a portal to another world  
 Essay project about "secret third thing" memes using a post structuralist approach  
 Zine project using philosophical ideas to express the conflict of being mixed race (specifically B&W in the Western capital of the world, America)  
+Essay project; "Toward a comprehensive education", ideas and questions about how to educate better; e.g. teaching the fundamental tools of language earlier (prefix/suffix, word structure, the patterns of language, the mythic weight of these parts; why wasn't i introduced to them thoroughly before high school/college? why is material taught in this particular order? what developmental model are we basing it off of? who does this serve, where is the blind spot?  
+
 
 
 
