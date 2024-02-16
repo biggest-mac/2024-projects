@@ -31,5 +31,7 @@ Story project about ghosts and ancestry
 Story project about getting lost  
 Story project about discovering a portal to another world  
 Essay project about "secret third thing" memes using a post structuralist approach  
+Zine project using philosophical ideas to express the conflict of being mixed race (specifically B&W in the Western capital of the world, America)  
+
 
 
