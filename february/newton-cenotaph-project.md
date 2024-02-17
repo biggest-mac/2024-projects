@@ -18,10 +18,6 @@ Prometheus (movie)
 
 
 
-
-
-
-
 *Concepts:*  
 the panopticon  
 politics of visibility  
