@@ -35,6 +35,9 @@ Zine project using philosophical ideas to express the conflict of being mixed ra
 Essay project; "Toward a comprehensive education", ideas and questions about how to educate better; e.g. teaching the fundamental tools of language earlier (prefix/suffix, word structure, the patterns of language, the mythic weight of these parts; why wasn't i introduced to them thoroughly before high school/college? why is material taught in this particular order? what developmental model are we basing it off of? who does this serve, where is the blind spot?  
 Zine project compiling mythic references in popular media (lyrics specifically); just to get a larger picture  
 Tattoo project of "ex nihilo"; play with fonts, languages, etc.  
+Coding project about astrology for aliens, a.k.a. expanding the astrology matrix to hypothetically read the charts of beings born on other planets/systems  
+Coding project of typography and weird cool fonts inspired by cosmic stuff; (bad explaination but i know what i mean)  
+
 
 
 
