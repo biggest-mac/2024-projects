@@ -37,7 +37,7 @@ Zine project compiling mythic references in popular media (lyrics specifically);
 Tattoo project of "ex nihilo"; play with fonts, languages, etc.  
 Coding project about astrology for aliens, a.k.a. expanding the astrology matrix to hypothetically read the charts of beings born on other planets/systems  
 Coding project of typography and weird cool fonts inspired by cosmic stuff; (bad explaination but i know what i mean)  
-Tattoo project of stylized feathers?  
+Tattoo project of stylized feathers, stars, black holes, records/cd's,   
 
 
 
