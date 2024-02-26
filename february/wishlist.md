@@ -1,3 +1,5 @@
+##WISHLIST
+
 35mm point and shoot  
 120mm point and shoot  
 mini printer  
