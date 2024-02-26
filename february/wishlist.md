@@ -6,8 +6,8 @@ mini printer
 ink droppers  
 small loom?  
 almond oil  
-(BOOK) Gideon the Ninth  
-(BOOK) Post-colonial Astrology  
+[BOOK] Gideon the Ninth  
+[BOOK] Post-colonial Astrology  
 guitar strap  
 guitar headphones  
 hand strenghtner  
