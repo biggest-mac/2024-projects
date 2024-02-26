@@ -1,5 +1,5 @@
 ### GOALS
-*read more*
+*read more*  
   use storygraph to log books  
   annotate more  
   critical analysis  
