@@ -18,4 +18,8 @@ portable amp.
 space heater  
 keyboard  
 recording microphone  
+lightbox/table  
+iPad case  
+
+
 
