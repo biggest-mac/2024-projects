@@ -54,9 +54,7 @@ the french-spanish geodesic mission to the equator
 the anthropocene  
 apocalypse  
 the singularity  
-
-
-
-
+pluralism  
+dialectics  
 
 *Images:*
