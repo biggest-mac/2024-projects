@@ -1,53 +1,57 @@
 ### GOALS
-*read more*  
-  use storygraph to log books  
-  annotate more  
-  critical analysis  
+
+1. *read more*  
+- use storygraph to log books  
+- annotate more
+- critical analysis  
   
-*better texter*  
-  faster response times  
-  check in on people  
+2. *better texter*  
+- faster response times
+- check in on people  
 
-*diet/health*  
-  drink more water  
-  less drugs/alc.  
-  manage caffiene intake  
-  take vitamins/supplements  
-  getting to the gym
+3. *diet/health*  
+- drink more water  
+- less drugs/alc.  
+- manage caffiene intake  
+- take vitamins/supplements  
+- getting to the gym
 
-*creative outlet*  
-  photography edits (photoshop)
-  digital camera  
-  drawing  
-  graphic novel  
-  poetry  
-  music (bass, piano)
+4. *creative outlet*  
+- photography edits (photoshop)
+- digital camera  
+- drawing  
+- graphic novel  
+- poetry  
+- music (bass, piano)
 
-*planning ahead (time management)*  
-  predict habits  
-  set aside days for chores, shopping, HW, etc.  
+5. *planning ahead (time management)*  
+- predict habits  
+- set aside days for chores, shopping, HW, etc.
 
-*active processing*    
-  talk to friends  
-  journal  
+6. *active processing*    
+- talk to friends  
+- journal  
 
-*asking for help*  
-  find a mentor (beate?)  
+7. *asking for help*  
+- find a mentor (beate?)
+- talking to friends
 
-*asserting myself!*  
-  communicating needs  
-  setting boundaries  
+8. *asserting myself!*  
+- communicating needs  
+- setting boundaries  
 
-*improve finances*  
-  identify financial goals  
-  work on financial literacy  
+9. *improve finances*  
+- identify financial goals
+  - charity/help out local homeless people
+  - 
+- work on financial literacy  
 
-*work towards moving out*  
-  save up money  
+10. *work towards moving out*  
+- save up money  
 
-*work on portfolio*  
-  set up website  
-  create more work to show
+11. *work on portfolio*  
+- set up website  
+- create more work to show
   seek out art events  
-  
+
 
