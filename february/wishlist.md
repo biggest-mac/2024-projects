@@ -20,10 +20,10 @@ keyboard
 recording microphone  
 lightbox/table  
 iPad case  
-Apple trackpad
-iPad Mini
-heated blanket
-weighted blanket
+Apple trackpad  
+iPad Mini  
+heated blanket  
+weighted blanket  
 
 
 
