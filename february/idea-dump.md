@@ -40,6 +40,8 @@ Coding project of typography and weird cool fonts inspired by cosmic stuff; (bad
 Tattoo project of stylized feathers, stars, black holes, records/cd's,   
 Painting project using records as the canvas  
 Painting project using cardboard boxes as the canvas  
+Drawing project of all the weird positions i get into when trying to use my devices comfotably  
+
 
 
 
